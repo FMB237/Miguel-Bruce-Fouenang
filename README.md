@@ -1,5 +1,4 @@
 # Fouenang-Miguel-Bruce
-User info
 
 <!-- PROFILE README FOR @FMB237 -->
 
